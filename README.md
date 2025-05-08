@@ -58,6 +58,10 @@ https://app.image-maps.com/m/private/0/9j8klcr0e5hdbldn7l5dkluua0_quick-tips.png
 [Bravo Quick Guide.pdf](https://github.com/Baba999999999/Darko/files/9828673/Bravo.Quick.Guide.pdf)
 ![images (6)](https://github.com/Baba999999999/Darko/assets/108518978/13fb4901-4a9c-42f2-84f2-0f5848ff250f)
 ![images (5)](https://github.com/Baba999999999/Darko/assets/108518978/1ef88505-057a-4aa9-90a9-c056068a3045)
+![images](https://github.com/user-attachments/assets/b42cfbb3-8003-41da-97c7-b8897e7acea7)
+
+![images](https://github.com/user-attachments/assets/adea52ca-e277-496f-ab27-75a0166e4001)
+
 
 
 
